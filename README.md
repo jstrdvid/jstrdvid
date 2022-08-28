@@ -1,0 +1,4 @@
+- 👋 Hi, I am @jstrdvid
+- 👀 I'm interested in the field of Energy and Automation
+- 🌱 I’m currently learning: home automation 
+- 📫 How to reach me: jstrdvid@gmail.com
